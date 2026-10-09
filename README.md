@@ -1,7 +1,5 @@
 THE SEVEN
 
-Fabrício Moura de Fraga
-
 Fagner Moura de Fraga 
 
 Gabrielly Oliveira Ferreira da Silva
